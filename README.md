@@ -1,3 +1,3 @@
 # READ.ME
 
-HOPE Shall win
+HOPE Shall come
